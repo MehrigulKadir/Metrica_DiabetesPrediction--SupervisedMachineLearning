@@ -1,1 +1,0 @@
-# metrica_project1
